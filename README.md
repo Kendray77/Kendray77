@@ -1,16 +1,11 @@
-## Hi there 👋
+## Opa, tudo certo?😉🤙🏼
 
-<!--
-**Kendray77/Kendray77** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- Sou o Kenay🧑🏼
+- Estudande do Ensino Médio📚
+- 16 anos🌪️
+- PR/BRASIL🇧🇷🥇
+- Gresmista⚽🇪🇪
+  
+-![shrek](https://media1.tenor.com/m/zQd2pjMQl9YAAAAC/shreks-meme.gif)
+-![zidane](https://media1.tenor.com/m/qJ9CSlcwrB0AAAAC/zidane-confused.gif)
+-![cachorrodançando](https://media1.tenor.com/m/PDOb6qqJ71YAAAAd/pastor-k_.gif)
